@@ -9,7 +9,9 @@
 ssh host.name.hostname.com
 ```
 
-
+- [ ] Don't use phone before going to bed
+- [ ] Drink plenty of water
+- [ ] Do not exercise so close to bedtime
 
 
 
