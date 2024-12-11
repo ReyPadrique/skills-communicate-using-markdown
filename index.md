@@ -2,7 +2,7 @@
 
 ## I love my job.
 
-
+![Image of the town of Banff](https://www.tripsavvy.com/thmb/1aXkdyIDI0OkKVHVC8fuvYHZDhY=/2125x1412/filters:fill(auto,1)/Banff-National-Park_janeteasche_Getty-Images-56a97eeb5f9b58b7d0fbf876.jpg)
 
 
 
